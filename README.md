@@ -1,4 +1,1 @@
 # patsudahoranikom.github.io
-
-
-ghjcgjgchjgchjcghcg
